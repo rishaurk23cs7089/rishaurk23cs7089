@@ -12,5 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Frontend
 - 📫 How to reach me: Reach me throught linkdIn Risha Shnathi
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
 
